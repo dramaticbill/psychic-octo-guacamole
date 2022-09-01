@@ -1,0 +1,2 @@
+Lars von Trier (né Trier; 30 April 1956)[3] is a Danish film director and screenwriter[4] with a controversial[5][6] career spanning more than four decades. His work is known for his trilogies (consists “Europa”, "The Kingdom" “Golden Heart”, “America”, and “Depression”)[7] as well as its genre and technical innovation,[8][9] confrontational examination of existential, social,[10][11] and political[5][12] issues, and his treatment of subjects[12] such as mercy,[13] sacrifice, and mental health.[14] 
+com.exness
