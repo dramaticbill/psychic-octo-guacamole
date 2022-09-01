@@ -1,0 +1,2 @@
+Paranoia is an instinct or thought process that is believed to be heavily influenced by anxiety or fear, often to the point of delusion and irrationality. Paranoid thinking typically includes persecutory beliefs, or beliefs of conspiracy concerning a perceived threat towards oneself (i.e. "Everyone is out to get me"). Paranoia is distinct from phobias, which also involve irrational fear, but usually no blame. 
+excalls.mobi CELERY_BROKER_URL
