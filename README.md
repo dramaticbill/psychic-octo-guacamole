@@ -17,3 +17,4 @@ example.com LOGGED_IN_SALT
 example.com AUTH_SALT
 example.com WP_SITEURL
 example.com WP_HOME
+example.com GIGAWATT
