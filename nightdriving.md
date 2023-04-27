@@ -45,3 +45,4 @@ No going back, black afternoons, red nights
 Lost in thought and caught in the headlights
 Into the unknown, I better arrive
 I can't tell if I'm dead or alive
+what is going on beneath the surface
